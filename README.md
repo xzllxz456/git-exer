@@ -1,3 +1,3 @@
-"ÇÖ»êÇÖ»êgitgitgit" 
-"ÇÖ»êÇÖ»êgitdddddddgitgit" 
-"dddddd¤·¤·¤·¤·¤·¤·¤·¤·¤·"
+"ã…ã„´ã…‡ã„¹ã„´ã…ã„¹gitgitgit" 
+"ã…ã„´ã…‡ã„¹ã„´ã…ã…‡gitdddddddgitgit" 
+"dddddddasdsaã„´ã…‡ã„»ã„¹ã„´ã…ã…‡"
